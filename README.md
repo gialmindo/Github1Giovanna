@@ -1,1 +1,1 @@
-# Github1Giovanna
+checkpoint 2 - Giovanna Almindo
